@@ -38,7 +38,7 @@ I excel at bridging the gap between business needs and technical execution, fost
 
 ## 📫 Let's Connect  
 💼 [LinkedIn](https://www.linkedin.com/in/mahesh-raju-c-1bb46183)  
-📧 Email: your.email@example.com  
+📧 Email: maheshrajuc@outlook.com  
 🌎 Bangalore, India  
 
 ---
